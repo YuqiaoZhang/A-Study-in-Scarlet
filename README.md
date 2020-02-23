@@ -31,4 +31,8 @@ Young Stamford looked rather strangely at me over his wine-glass. "You don't kno
 "Why, what is there against him?"  
 
 "Oh, I didn't say there was anything against him. He is a little queer in his ideas—an enthusiast in some branches of science. As far as I know he is a decent fellow enough."  
-    
+  
+"A medical student, I suppose?" said I.  
+  
+"No—I have no idea what he intends to go in for. I believe he is well up in anatomy, and he is a first-class chemist; but, as far as I know, he has never taken out any systematic medical classes. His studies are very desultory and eccentric, but he has amassed a lot of out-of-the-way knowledge which would astonish his professors."  
+  
