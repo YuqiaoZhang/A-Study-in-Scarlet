@@ -36,3 +36,9 @@ Young Stamford looked rather strangely at me over his wine-glass. "You don't kno
   
 "No—I have no idea what he intends to go in for. I believe he is well up in anatomy, and he is a first-class chemist; but, as far as I know, he has never taken out any systematic medical classes. His studies are very desultory and eccentric, but he has amassed a lot of out-of-the-way knowledge which would astonish his professors."  
   
+"Did you never ask him what he was going in for?" I asked.  
+  
+"No; he is not a man that it is easy to draw out, though he can be communicative enough when the fancy seizes him."
+
+
+  
