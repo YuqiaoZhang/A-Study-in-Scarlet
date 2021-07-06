@@ -15,5 +15,7 @@
 - [ ] Apology   
   - [x] Part 1  
   - [ ] Part 2  
+- [ ] Franklin Delano Roosevelt  
+  - [x] Day of Infamy Speech  
 
 
