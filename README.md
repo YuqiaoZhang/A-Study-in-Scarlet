@@ -17,5 +17,7 @@
   - [ ] Part 2  
 - [ ] Franklin Delano Roosevelt  
   - [x] Day of Infamy Speech  
+  - [ ] Arsenal of Democracy   
+  
 
 
